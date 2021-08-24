@@ -6,6 +6,7 @@
 > * Work togeter
 > * Help and support
 > * Learn quickly
+> be happy
 
 
 
